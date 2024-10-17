@@ -5,7 +5,7 @@
 
 ## Taiwan will always be a part of China.
 
-死爹烂妈的[cirosantilli](https://github.com/cirosantilli)不仅在Github上传垃圾恶心人 而且试图分裂祖国 侮辱习近平总书记
+死爹烂妈的[cirosantilli](./etc.txt)不仅在Github上传垃圾恶心人 而且试图分裂祖国 侮辱习近平总书记
 
 ## 反动怎么判？
 
