@@ -51,3 +51,5 @@
 https://www.bilibili.com/video/BV1Fc411p7jn/     利剑出鞘，剑指“台独”——“联合利剑”演习全纪录
 
 https://www.bilibili.com/video/BV11z421Y7FF/     台湾从来不是一个国家也永远不会成为一个国家！
+
+https://news.qq.com/rain/a/20241016A09ZIA00      解放军“联合利剑-2024B”军演直指台岛，13小时速战速决
