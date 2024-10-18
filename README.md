@@ -5,9 +5,12 @@
 
 ## Taiwan will always be a part of China.
 
-死爹烂妈的[cirosantilli](./etc.md)不仅在Github上传垃圾恶心人 而且试图分裂祖国 侮辱习近平总书记
+## 祖国统一是历史的选择，任何阻碍祖国统一的人都将被历史淘汰。
 
-## 请不要在他的repo发issue辱骂他，会被他把你的issue内容改成反动言论
+#### 如果你在它的repo下提issue骂它 这个龟头流臭水的死妈玩意就会edit你的issue改成反动言论
+
+#### 死爹烂妈的[cirosantilli](./etc.md)不仅在Github上传垃圾恶心人 而且试图分裂祖国 侮辱习近平总书记
+
 ## 反动怎么判？
 
 煽动颠覆国家政权罪的判罚主要依据犯罪行为的严重程度。以下是具体的判罚标准和法律依据：
