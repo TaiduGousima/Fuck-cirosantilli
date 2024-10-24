@@ -1,3 +1,4 @@
+# 请注意！！！如果你在它的repo下提issue骂它，它就会把你的issue edit成反动言论！！！
 # Fuck-cirosantilli
 傻逼死妈台独狗滚出Github
 
